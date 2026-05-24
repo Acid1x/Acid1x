@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀ ⠀![](https://cdn.discordapp.com/attachments/1066762081359122534/1467725322249306153/Untitled11_20260202113612.png?ex=6986b339&is=698561b9&hm=6b98893c42457dfa0330cdd8d69f02c2b7ef8fde18fbd0b014b20b8fa02569e0)
+⠀⠀⠀⠀⠀ ⠀![](https://media.discordapp.net/attachments/1066762081359122534/1507938771247829105/Untitled40_20260524104852.png?ex=6a13b8eb&is=6a12676b&hm=57d8abce68bafe838e790f99e2318ec4c694f5b23bf143c926caf9e98941c0f1&=&format=webp&quality=lossless)
 
 — DNI Unless M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) . 
 
