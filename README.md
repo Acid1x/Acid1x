@@ -6,7 +6,7 @@
 
 — You know your past self is too much when you're starting to hate how you used to act . 
 
-![](https://media.discordapp.net/attachments/1066762081359122534/1467727621298327755/46c6cae5-0193-4387-9e89-e40f0e821844.png?ex=69816f5d&is=69801ddd&hm=f50b1f571a1309798969440060ed5427c85a89a923b2a166d93217b21a6b7a5c&=&format=webp&quality=lossless&width=355&height=315)
+![](https://media.discordapp.net/attachments/1066762081359122534/1507940816427941929/Untitled43_20260524105811.png?ex=6a13bad2&is=6a126952&hm=3f07a63c34111474bd63cbbd55c4158b9383e3a5abd27490571d7cb6413dbe71&=&format=webp&quality=lossless)
 
 Omfg i hate working on this shit . 
 
