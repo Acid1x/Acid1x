@@ -1,28 +1,16 @@
-⠀⠀⠀⠀⠀ ⠀![](https://media.discordapp.net/attachments/1066762081359122534/1507938771247829105/Untitled40_20260524104852.png?ex=6a13b8eb&is=6a12676b&hm=57d8abce68bafe838e790f99e2318ec4c694f5b23bf143c926caf9e98941c0f1&=&format=webp&quality=lossless)
+⠀⠀⠀⠀⠀ ⠀![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a1667d6&is=6a151656&hm=0a0926543dd4ac31d1f9e8482822dd7988f0a4829e725915119d59f9e2d7f631&=&format=webp&quality=lossless&width=748&height=544)
 
-— DNI Unless M , K or their friends . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) . 
+.✦ ݁˖ `DNI Unless M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
 
-— MIGHT . Might decide to C+H with someone random and compliment them if i feel like it . Just need the courage so if i C+H with you or complimented you? Yeah congratulations . 
+಄ `MIGHT . Might decide to C+H with someone random and compliment them if i feel like it . Just need the courage so if i C+H with you or complimented you? Yeah congratulations .` 
 
-— You know your past self is too much when you're starting to hate how you used to act . 
-
-![](https://media.discordapp.net/attachments/1066762081359122534/1507940816427941929/Untitled43_20260524105811.png?ex=6a13bad2&is=6a126952&hm=3f07a63c34111474bd63cbbd55c4158b9383e3a5abd27490571d7cb6413dbe71&=&format=webp&quality=lossless)
-
-Omfg i hate working on this shit . 
+.✦ ݁˖ `You know your past self is too much when you're starting to hate how you used to act .` 
 
 
-  ![](https://media.discordapp.net/attachments/1066762081359122534/1467505531756482560/Untitled5_20260201210227.png?ex=69814947&is=697ff7c7&hm=585c08b1e9fc4e6a31109d1a2df27370664c886fe1a85e845425948c43d6d6d1&=&format=webp&quality=lossless&width=447&height=233)
-<!--
-**IdioticSHdz/IdioticSHdz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://i.postimg.cc/x1sSs4wv/poison.gif)![](https://i.postimg.cc/JzzfBQsG/toxic.gif)![](https://64.media.tumblr.com/45ad04653a1b79d4984a155361717d4b/270fc90b1b30ec55-4c/s75x75_c1/f70efa7117a06137f4b1b913f6bca61e9ccf6e0d.gif)![](https://i.postimg.cc/DzjyXZfK/addictive.gif)![](https://i.postimg.cc/pr824Jf2/jealous.gif)![](https://64.media.tumblr.com/0fc2285ae1344407994ca0a38ddb5257/e00fb671dc1925c4-b4/s75x75_c1/f7bf1d62b4c3a8a3cddef3c1da14356af4b8d002.gif)![](https://i.postimg.cc/GhCr9YPy/rawr.gif)
 
-Here are some ideas to get you started:
+![](https://i.postimg.cc/wvtVzVkJ/dead.gif)![](https://i.postimg.cc/SKXHgN74/missed.gif)![](https://i.postimg.cc/0QDFqWBH/creative.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://files.catbox.moe/xad1sn.gif)![](https://files.catbox.moe/7npxpr.gif)![](https://files.catbox.moe/jajpty.gif)![](https://files.catbox.moe/2pcvdc.gif)
+
+`Credits to the rightful owner for these buttons !`
