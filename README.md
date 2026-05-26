@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀ ⠀![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a1667d6&is=6a151656&hm=0a0926543dd4ac31d1f9e8482822dd7988f0a4829e725915119d59f9e2d7f631&=&format=webp&quality=lossless&width=748&height=544)
 
-.✦ ݁˖ `DNI Unless M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
+.✦ ݁˖ `DNI Unless X , M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
 
 ಄ `MIGHT . Might decide to C+H with someone random and compliment them if i feel like it . Just need the courage so if i C+H with you or complimented you? Yeah congratulations .` 
 
@@ -16,4 +16,4 @@
 
 
 ![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a167782&is=6a152602&hm=e1d3a5a0dcb82b1a442fdc0a3cff69da575c09924663228a2f6a6375eca5b9d3&=&format=webp&quality=lossless&width=349&height=350)
-`Credits to the rightful owner for these !`
+~~Credits to the rightful owner for these !~~
