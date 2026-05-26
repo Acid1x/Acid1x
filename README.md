@@ -16,4 +16,4 @@
 
 
 ![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a167782&is=6a152602&hm=e1d3a5a0dcb82b1a442fdc0a3cff69da575c09924663228a2f6a6375eca5b9d3&=&format=webp&quality=lossless&width=349&height=350)
-~~Credits to the rightful owner for these !~~
+~~CREDITS TO THE RIGHTFUL OWNER(S) !~~
