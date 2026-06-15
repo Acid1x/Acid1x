@@ -1,10 +1,10 @@
 ㅤㅤㅤㅤㅤㅤI won't Int unless you do , Mostly stare longer at people who i find cool .
-ㅤㅤㅤㅤㅤㅤㅤ[Strwpg](https://acid1xwip.straw.page/) WIP.
+ㅤㅤㅤㅤㅤㅤㅤ[Strwpg](https://acid1xwip.straw.page/) 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2721069595/profile)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Pony Town](https://pony.town/)ㅤ<--- ㅤBack .                                                                                                  
                                       
       ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ?                                  " When can you be proud of me , Dad ? I did everything right . . . Didn't i ? "                                 " Say something . . . "                                                   ? ? ? ? ? ? ? ? ? ? ? ? ? ?
-  ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a1667d6&is=6a151656&hm=0a0926543dd4ac31d1f9e8482822dd7988f0a4829e725915119d59f9e2d7f631&=&format=webp&quality=lossless&width=748&height=544)                              
+  ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a30c5d6&is=6a2f7456&hm=2bd7120414c8f133e0c9c2a143e9857662a58223207db9afa941a15b5eee63ba&=&format=webp&quality=lossless&width=748&height=544)                              
 
 
  .✦ ݁˖ `DNI Unless X , M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
@@ -21,7 +21,7 @@
 ![](https://files.catbox.moe/xad1sn.gif)![](https://files.catbox.moe/7npxpr.gif)![](https://files.catbox.moe/jajpty.gif)![](https://files.catbox.moe/2pcvdc.gif) $${\color{lightgreen}Say \space that \space i'm \space good \space enough \space .}$$
 
 
-![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a167782&is=6a152602&hm=e1d3a5a0dcb82b1a442fdc0a3cff69da575c09924663228a2f6a6375eca5b9d3&=&format=webp&quality=lossless&width=349&height=350)
+![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a30d582&is=6a2f8402&hm=854df9898c3d548d6bc7e3e95a88e3068356e052dc29bfa6a2a4493aacb2e09a&=&format=webp&quality=lossless&width=349&height=350)
 ~~CREDITS TO THE RIGHTFUL OWNER(S) !~~ 
 
   $${\color{green}Sincerely \space 1x4 \space sign out \space .}$$
