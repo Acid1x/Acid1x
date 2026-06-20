@@ -3,7 +3,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2721069595/profile)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Pony Town](https://pony.town/)ㅤ<--- ㅤBack .                                                                                                  
                                       
-      ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ? ?                                  " When can you be proud of me , Dad ? I did everything right . . . Didn't i ? "                                 " Say something . . . "                                                   ? ? ? ? ? ? ? ? ? ? ? ? ? ?
+    
   ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a30c5d6&is=6a2f7456&hm=2bd7120414c8f133e0c9c2a143e9857662a58223207db9afa941a15b5eee63ba&=&format=webp&quality=lossless&width=748&height=544)                              
 
 
