@@ -4,7 +4,7 @@
   ㅤㅤㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2721069595/profile)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Pony Town](https://pony.town/)ㅤ<--- ㅤBack .                                                                                                  
                                       
     
-  ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a30c5d6&is=6a2f7456&hm=2bd7120414c8f133e0c9c2a143e9857662a58223207db9afa941a15b5eee63ba&=&format=webp&quality=lossless&width=748&height=544)                              
+  ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a4a7b16&is=6a492996&hm=ddd0b57eca7505e2b27ef6dcff2d098c9daee71481d98a0e806b1662a5e99e2f&=&format=webp&quality=lossless&width=481&height=350)                              
 
 
  .✦ ݁˖ `DNI Unless X , M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
@@ -21,7 +21,7 @@
 ![](https://files.catbox.moe/xad1sn.gif)![](https://files.catbox.moe/7npxpr.gif)![](https://files.catbox.moe/jajpty.gif)![](https://files.catbox.moe/2pcvdc.gif) $${\color{lightgreen}Say \space that \space i'm \space good \space enough \space .}$$
 
 
-![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a30d582&is=6a2f8402&hm=854df9898c3d548d6bc7e3e95a88e3068356e052dc29bfa6a2a4493aacb2e09a&=&format=webp&quality=lossless&width=349&height=350)
+![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a4a8ac2&is=6a493942&hm=d115a82440f2af10f04721e63c5bcf350fcc6e75c970305581e64b77ba4bc993&=&format=webp&quality=lossless&width=349&height=350)
 ~~CREDITS TO THE RIGHTFUL OWNER(S) !~~ 
 
   $${\color{green}Sincerely \space 1x4 \space sign out \space .}$$
