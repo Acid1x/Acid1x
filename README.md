@@ -4,7 +4,7 @@
   ㅤㅤㅤㅤㅤㅤㅤ[Roblox](https://www.roblox.com/users/2721069595/profile)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Pony Town](https://pony.town/)ㅤ<--- ㅤBack .                                                                                                  
                                       
     
-  ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a4a7b16&is=6a492996&hm=ddd0b57eca7505e2b27ef6dcff2d098c9daee71481d98a0e806b1662a5e99e2f&=&format=webp&quality=lossless&width=481&height=350)                              
+  ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a4d1e16&is=6a4bcc96&hm=2752364b8f49d766a57161acecfc53d5562aeae54e57e6ab6e5ca76407a783f1&=&format=webp&quality=lossless&width=748&height=544)                              
 
 
  .✦ ݁˖ `DNI Unless X , M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
