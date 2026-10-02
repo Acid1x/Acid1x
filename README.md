@@ -22,6 +22,3 @@
 
 
 ![](https://media.discordapp.net/attachments/1066762081359122534/1508693172740690000/Untitled45_20260526124740.png?ex=6a4a8ac2&is=6a493942&hm=d115a82440f2af10f04721e63c5bcf350fcc6e75c970305581e64b77ba4bc993&=&format=webp&quality=lossless&width=349&height=350)
-~~CREDITS TO THE RIGHTFUL OWNER(S) !~~ 
-
-  $${\color{green}Sincerely \space 1x4 \space sign out \space .}$$
