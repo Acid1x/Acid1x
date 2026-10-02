@@ -7,7 +7,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/1066762081359122534/1508676346895798369/Untitled45_20260526114046.png?ex=6a4d1e16&is=6a4bcc96&hm=2752364b8f49d766a57161acecfc53d5562aeae54e57e6ab6e5ca76407a783f1&=&format=webp&quality=lossless&width=748&height=544)                              
 
 
- .✦ ݁˖ `DNI Unless X , M , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
+ .✦ ݁˖ `DNI Unless E , K or , friends or unless i do . Very bad with new people , not very social 'n can get very awkward with me . Maybe has social anxiety (?) .` 
 
 ಄ `MIGHT . Might decide to C+H with someone random and compliment them if i feel like it . Just need the courage so if i C+H with you or complimented you? Yeah congratulations . But if you really want to int then i don't mind. Just to let you know i'm a very talkactive person when i get to know my friends . I may or may not reply with capitals depending on my mood / person .` 
 
